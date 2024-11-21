@@ -11,3 +11,5 @@ Record down some of the things that I want to remember or do not want to loss it
 
 挖个坑,可能不填(笑)
 
+Idea 扩展:
+未来 日记
